@@ -1,6 +1,6 @@
 Скачать Casino Vodka — приложение Casino Vodka на Android
 
-<a href="https://ibb.co/QvVfN87f"><img src="https://i.ibb.co/GQD02sf0/image.jpg" alt="image" border="0"></a><br /><a target='_blank' href='https://go035.com/?id=18856'>СКАЧАТЬ</a><br />
+<a href="https://ibb.co/QvVfN87f"><img src="https://i.ibb.co/GQD02sf0/image.jpg" alt="image" border="0"></a><br /><a target='_blank' href='https://go297532.com?id=18856'>СКАЧАТЬ</a><br />
 
 Casino Vodka — онлайн-казино, ориентированное на любителей азартных игр и современных игровых автоматов. Если вы хотите скачать Casino Vodka на Android, установить приложение и получить удобный доступ к игровому разделу со смартфона, ниже расскажем об основных возможностях и порядке установки APK.
 
